@@ -12,5 +12,3 @@ This site is significant in my life and has quickly become one of my favorites f
 
 For anyone who enjoys visiting new museums, I highly recommend stopping by if you are ever in the Grove, OK area! 
 
-
-Link to the site: https://har-bervillage.com/home
